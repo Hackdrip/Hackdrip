@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Hackdrip
+- 👋 Hi, I’m Bh Bxrnds
 - 👀 I’m interested in Sports and Gaming
 - 🌱 I’m currently learning Calculus
 - 💞️ I’m looking to collaborate on Gaming
